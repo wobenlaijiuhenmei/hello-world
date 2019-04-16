@@ -1,3 +1,3 @@
 # hello-world
-first would you lake me?I am not excellent.But I love you. 
-+你就是一个大傻子
+I love three things in this world.Sun, moon and you. Sun for morning, moon for night, and you forever.
+浮世万千，吾爱有三，日月卿。日为朝，月为暮，卿为朝朝暮暮
